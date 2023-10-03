@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+*estela
+*colégio daniel rocha
+*estelaprestedemelo@gmail.com
